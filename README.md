@@ -1,2 +1,0 @@
-# CV
-# Check my CV

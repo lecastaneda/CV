@@ -1,2 +1,2 @@
 # CV
-CV_Castaneda.pdf
+Here you can find English and Spanish versions of my CV.
